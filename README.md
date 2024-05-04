@@ -2,7 +2,7 @@
 
 - 📫 reach me at **boodymohammed26@gmail.com**
 
-- 📄 My Resume [https://drive.google.com/file/d/10phfmpSdIym1FmP7Fqoa-Hf9dTMJMOGc/view?usp=sharing](https://drive.google.com/file/d/10phfmpSdIym1FmP7Fqoa-Hf9dTMJMOGc/view?usp=sharing)
+- 📄 [My Resume](https://drive.google.com/file/d/10phfmpSdIym1FmP7Fqoa-Hf9dTMJMOGc/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
