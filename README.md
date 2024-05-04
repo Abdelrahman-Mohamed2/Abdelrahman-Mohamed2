@@ -1,4 +1,4 @@
-<h3 align="center">AI & ML Student</h3>
+<h2 align="center">AI & ML Student</h2>
 
 - 📫 reach me at **boodymohammed26@gmail.com**
 
